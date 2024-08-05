@@ -10,6 +10,6 @@ sou legal
 
 sou o pai do CLtuluos
 
-
+![](https://media.tenor.com/PND6dbMpQysAAAAi/spongebob-sad-spongebob.gif) ![](https://media.tenor.com/Wy9v13xdYqAAAAAi/dance.gif) ![](https://media.tenor.com/Q49ZHhSEPngAAAAi/dicord-keep.gif)
 
 ![](https://media.tenor.com/0XSg3Cc9ao8AAAAi/carl-and-shaggy-jamin-dance.gif)
